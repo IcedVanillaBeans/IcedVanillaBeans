@@ -1,8 +1,8 @@
 ## Haiiii! :3
 
 
-## 🫘Im currently working on: Friday Night Goobers: Shade Shade Build :3🫘
-
+## 🫘Im currently working on: Proyect Kat🫘
+## 🫘We might need some help with this... 3:🫘
 <!--
 **IcedVanillaBeans/IcedVanillaBeans** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
